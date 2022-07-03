@@ -1,1 +1,0 @@
-# astronomywiki.github.io
